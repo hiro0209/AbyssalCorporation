@@ -1,2 +1,2 @@
-# hiro0209-AbyssalCorporation
+# AbyssalCorporation
 It's a fiction.
